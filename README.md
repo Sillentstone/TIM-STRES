@@ -1,3 +1,3 @@
 Smabom Track Rating Evaluation by Student
-AKA STRES
+AKA "STRES"
 by XII - 4
